@@ -1,1 +1,1 @@
-Salve meus aliadoss
+Salve meus aliados
